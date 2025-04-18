@@ -1,8 +1,8 @@
-![Image](https://github.com/user-attachments/assets/df4527fb-8258-49e7-8f0d-2edd0c13964f)
+![Image](https://github.com/user-attachments/assets/0d06a3bd-2ab5-4f11-a254-556d76793c29)
 
 **Vanny / Van** 
 _- INT with me I'm friendly, if i don't reply i'm probs afk._ 
 _- Fandoms: MHA, JJK, Death note, GF, Demon slayer, trigun, one piece, Marvel, Trollhunters_
 _- Anti selfshippers and oc x canon get out_
 
-![Image](https://github.com/user-attachments/assets/fe356531-0de9-4c77-9196-4f30b9ac85ee)
+![Image](https://github.com/user-attachments/assets/488798cc-bfa5-4fc6-ac76-b08162950ff2)
