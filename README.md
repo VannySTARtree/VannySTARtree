@@ -1,8 +1,12 @@
-![Image](https://github.com/user-attachments/assets/0d06a3bd-2ab5-4f11-a254-556d76793c29)
+ <p align="center">
+  <h4 align="center"
+    </a>
+<img src="https://github.com/user-attachments/assets/c09c4348-1476-4643-b77b-9fac77dd605e" class="fr-fic fr-dib" width="380" height="344.712">
 
 **Vanny / Van** 
 _- INT with me I'm friendly, if i don't reply i'm probs afk._ 
 _- Fandoms: MHA, JJK, Death note, GF, Demon slayer, trigun, one piece, Marvel, Trollhunters, BSD_
 _- Anti selfshippers and oc x canon get out_
 
-![Image](https://github.com/user-attachments/assets/488798cc-bfa5-4fc6-ac76-b08162950ff2)
+
+![Image](https://github.com/user-attachments/assets/65b3f63b-24af-4bf7-aa12-0e38f5dcfb06)
