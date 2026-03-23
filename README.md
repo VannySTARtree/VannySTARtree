@@ -9,4 +9,4 @@ _- Fandoms: MHA, Chainsaw , JJK, Death note, GF, Demon slayer, trigun, one piece
 _- Anti selfshippers and oc x canon get out_
 
 
-![Image](https://github.com/user-attachments/assets/32e3af3e-fa1d-427f-8fe8-53b26b065467)
+<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/e4ddb8b3-8150-46d4-9d40-5143e5d065fd" />
