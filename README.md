@@ -6,7 +6,7 @@
 **Vanny / Van** 
 _- just a silly Alternative fella who loves her F/Os , INT with me I'm friendly, if i don't reply i'm probs afk or just missed your message._ 
 _- Fandoms: MHA, Chainsaw , JJK, Death note, GF, Demon slayer, trigun, one piece, Marvel, Trollhunters, BSD_ , Resident Evil and more!
-_- yume shipper with megumi!
+_- yume shipper with megumi!( i am nonsharing with all my yumes, sorry)
 
 
 <img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/e4ddb8b3-8150-46d4-9d40-5143e5d065fd" />
