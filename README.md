@@ -7,6 +7,9 @@
 **Vanny / Van** 
 _- INT with me I'm friendly, if i don't reply i'm probs afk or just missed your message._ 
 _- Fandoms: MHA, Chainsaw , JJK, Death note, GF, Demon slayer, trigun, one piece, Marvel, Trollhunters, BSD_ , Resident Evil and more!
+
+
+
 _
 -I love my f/os yippees( if we share yumes and YOUR not hyper sharing pls don't try to talk about the f/o with me it's awkward if I cant talk back lmao)
 
