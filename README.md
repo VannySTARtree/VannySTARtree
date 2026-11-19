@@ -1,4 +1,4 @@
- <p align="center">
+so <p align="center">
   <h4 align="center"
     </a>
 <img width="735" height="359" alt="Image" src="https://github.com/user-attachments/assets/dc71ae6d-af13-494b-a30c-860676078c6b" />
@@ -10,4 +10,4 @@ _
 -I love my f/os yippees( if we share yumes and YOUR not hyper sharing pls don't try to talk about the f/o with me it's awkward if I cant talk back lmao)
 
 
-<img width="360" height="360" alt="Untitled120_20261119141117" src="https://github.com/user-attachments/assets/414067f6-7587-4d09-a967-e70b2f2e2f65" />
+<img width="486" height="584" alt="RODY!!!!! ^^" src="https://github.com/user-attachments/assets/0052510f-838c-4153-8b49-27323eb285b7" />
