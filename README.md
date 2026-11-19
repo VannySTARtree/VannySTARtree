@@ -1,7 +1,8 @@
 so <p align="center">
   <h4 align="center"
     </a>
-<img width="735" height="359" alt="Image" src="https://github.com/user-attachments/assets/dc71ae6d-af13-494b-a30c-860676078c6b" />
+
+<img width="736" height="484" alt="rody lamoree i love you" src="https://github.com/user-attachments/assets/694aaca7-5f20-483f-90b2-9507e3782fd3" />
    
 **Vanny / Van** 
 _- INT with me I'm friendly, if i don't reply i'm probs afk or just missed your message._ 
