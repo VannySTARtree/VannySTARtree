@@ -9,4 +9,4 @@ _- Fandoms: MHA, Chainsaw , JJK, Death note, GF, Demon slayer, trigun, one piece
 _- I love my f/os yippees( if we share yumes and YOUR not hyper sharing pls don't try to talk about the f/o with me it's awkward if I cant talk back lmao)
 
 
-<img width="736" height="736" alt="Image" src="https://github.com/user-attachments/assets/e4ddb8b3-8150-46d4-9d40-5143e5d065fd" />
+<img width="486" height="584" alt="RODY!!!!! ^^" src="https://github.com/user-attachments/assets/62b4ee46-4401-44f8-b216-18fd369383d1" />
